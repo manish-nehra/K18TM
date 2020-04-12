@@ -9,4 +9,4 @@ Ankush Kunwar         | Reg No. 11804821  | Roll No: 45
 
 Jayant Khanchandani   |  Reg No. 11505622 | Roll No: 43
 
-Manish Nehra          | Reg No. 18054223  | Roll No: 38
+Manish Nehra          | Reg No. 11805423  | Roll No: 38
